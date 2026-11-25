@@ -1,0 +1,1 @@
+# BohoSunStudioCo Etsy Shop Optimizer
